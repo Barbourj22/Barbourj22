@@ -1,0 +1,4 @@
+- Compsci Major - ECU 2022. 
+- Artist and aspiring game developer. 
+- Interest consist of video game development and design, illustration and robotics.
+- Have a good day :3 "/"
